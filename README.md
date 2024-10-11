@@ -1,4 +1,5 @@
-![Screenshot 2024-10-09 202941](https://github.com/user-attachments/assets/b183043b-0791-4c73-a35e-6684d214ba0e)
+
+![Screenshot 2024-10-09 202941](https://github.com/user-attachments/assets/6352d612-dd3b-4d4f-a586-d5298cd5fa8a)
 
 
 
